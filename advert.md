@@ -6,10 +6,3 @@ You thought you knew what the web was capable of. You were _wrong_. WebFlyx is t
 
 _While supplies last._
 
-
-
-this is a checkl
-lets hope
-
-ךשדא
-last
